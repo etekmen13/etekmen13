@@ -37,4 +37,4 @@ I am interested in predictive modeling applied to complex systems, ranging from 
 * **Philosophy:** Economic theory and governance models, metaphysics (I am a firm atheist/determinist), anthropology/sociology/psychology, I want to understand humans and their relationship to the Universe.
 
 ---
-[LinkedIn](https://www.linkedin.com/in/brian-tekmen-9a6724361/) | [Email](mailto:emre.tekmen03@gmail.com)
+[LinkedIn](https://www.linkedin.com/in/emre-tekmen-9a6724361/) | [Email](mailto:emre.tekmen03@gmail.com)
